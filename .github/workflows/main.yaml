@@ -1,0 +1,31 @@
+name: Trick of the Day
+on:
+  schedule:
+    - cron: "0 0 * * *" # daily
+  workflow_dispatch:
+
+jobs:
+  daily:
+    runs-on: ubuntu-latest
+    steps:
+      - uses: actions/checkout@v3
+
+      - name: Download Tricks YAML from generateTricks
+        run: |
+          curl -sL \
+            https://github.com/zoltarTheGreat/tricksGenerator/releases/tag/tricks-latest/tricks.yaml \
+            -o tricks.yaml
+
+      - name: Pick Daily Trick
+        run: python pickTrick.py
+
+      - name: Commit & Push Changes
+        env:
+          GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
+        run: |
+          git config user.name "TrickBot"
+          git config user.email "trick@bot.com"
+          git add README.md
+          git commit -m "Update Trick of the Day" || echo "No changes to commit"
+          git push https://x-access-token:${GITHUB_TOKEN}@github.com/${{ github.repository }}.git
+
