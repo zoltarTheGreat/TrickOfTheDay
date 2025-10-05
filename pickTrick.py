@@ -2,7 +2,7 @@ import yaml
 import os
 
 # Load tricks
-with open("tricks.yaml", "r") as f:
+with open("tricks.yaml", "r", encoding="utf-8") as f:
     tricks = yaml.safe_load(f)
 
 # Load last used index
