@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Kickback Flip
+## Kickflip
 
-The board does a half pressure kickflip rotation, then it is brought back up and thrown in the heelflip direction, making it a half pressure kickflip to a late one and a half helflip.
+When a skateboarder flicks off the corner of his nose of the board, if he/she rides normal with his left foot first he kicks to the left and vice versa for goofy footed skaters. Invented By Rodney Mullen.
 
-**Invented by:** Unknown
+**Invented by:** invented by professional skateboarder Rodney Mullen where the Skateboarder swipes his foot at an angle Skateboard in order to make it flip 360 degrees along the board's long axis. The modern Kickflip 
 
-**Year:** Unknown
+**Year:** 1983
 
-[![Watch the trick](https://img.youtube.com/vi/rYeQQ1HtIrg/0.jpg)](https://www.youtube.com/watch?v=rYeQQ1HtIrg)
+[![Watch the trick](https://img.youtube.com/vi/jxTGfQT6-lU/0.jpg)](https://www.youtube.com/watch?v=jxTGfQT6-lU)
