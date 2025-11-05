@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Nollie Varial Kickflip
+## Ollie North
 
-An ollie off the nose of the board. Any trick can be performed nollie rather than an ollie (although they would be renamed accordingly, e.g. a kickflip from a nollie is called a “nollie kickflip”). A common misconception among younger riders is that nollie is similar to fakie. When performing a nollie trick, frontside is still frontside, as is backside, as if you are still riding in your regular stance. Fakie is meant to imply rolling backwards as if still riding regular. An example would be the a nollie frontside pop shove-it which is performed as if doing a switch backside shove-it, only riding backwards.
+Considered the trick of all tricks, this trick was what allowed Flatland Skateboarding to reach a vertical height and gave rise to the merge of Freestyle to Street obstacles creating an entirely new style of skateboard. Streetstyle Skateboarding. Streetstyle Skateboarding became possible when Freestyle tricks were allowed to be done on Street obstacles and the Ollie was the trick that allowed this to become possible. The Ollie was developed by Alan “Ollie” Gelfand on vert. This was done by simply scooping the board up into the air. The Flat ground version of the ollie was then invented by Rodney Mullen. He figured out that with proper foot positioning you could pop the board into the air.
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/xaNTj9Y3lgc/0.jpg)](https://www.youtube.com/watch?v=xaNTj9Y3lgc)
+[![Watch the trick](https://img.youtube.com/vi/1vbvsyLcBk4/0.jpg)](https://www.youtube.com/watch?v=1vbvsyLcBk4)
