@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Orange Flip
+## Plasma Spin
 
-Unknown
+Frontside bigspin with a pressure Impossible.
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/ooI1bcriJ0c/0.jpg)](https://www.youtube.com/watch?v=ooI1bcriJ0c)
+[![Watch the trick](https://img.youtube.com/vi/_mAX-czoiGw/0.jpg)](https://www.youtube.com/watch?v=_mAX-czoiGw)
