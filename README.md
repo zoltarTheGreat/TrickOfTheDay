@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Sex Change
+## Shuvit
 
-A Kick/Heel Flip With a 180 degrees body varial in one motion.
+Is a shuvit with a lateflip motion.
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/lSlEoXS109w/0.jpg)](https://www.youtube.com/watch?v=lSlEoXS109w)
+[![Watch the trick](https://img.youtube.com/vi/D9hiD1jV9ZI/0.jpg)](https://www.youtube.com/watch?v=D9hiD1jV9ZI)
