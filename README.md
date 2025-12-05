@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Underflip
+## Varial Heelflip
 
-Flipping the board by using one foot that is under the board and flipping it in the kickflip or heelflip direction.
+A varial heelflip is a heelflip combined with a frontside pop shove-it.
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/D90dtu3uk0w/0.jpg)](https://www.youtube.com/watch?v=D90dtu3uk0w)
+[![Watch the trick](https://img.youtube.com/vi/0AHI04PjFXs/0.jpg)](https://www.youtube.com/watch?v=0AHI04PjFXs)
