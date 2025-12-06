@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Varial Heelflip
+## Varial Kickflip
 
-A varial heelflip is a heelflip combined with a frontside pop shove-it.
+A varial kickflip is a kickflip combined with a backside pop shove-it.
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/0AHI04PjFXs/0.jpg)](https://www.youtube.com/watch?v=0AHI04PjFXs)
+[![Watch the trick](https://img.youtube.com/vi/ff2m--lXE-g/0.jpg)](https://www.youtube.com/watch?v=ff2m--lXE-g)
