@@ -1,6 +1,6 @@
 # Trick of the Day
 
-## Backside 50-50
+## Backside Bluntslide
 
 A 360 backside pop shove-it with a 180 body varial going the same direction.
 
@@ -8,4 +8,4 @@ A 360 backside pop shove-it with a 180 body varial going the same direction.
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/yj6y_zXo0sg/0.jpg)](https://www.youtube.com/watch?v=yj6y_zXo0sg)
+[![Watch the trick](https://img.youtube.com/vi/enYdRLompCc/0.jpg)](https://www.youtube.com/watch?v=enYdRLompCc)
