@@ -1,6 +1,6 @@
 # Trick of the Day
 
-## Backside Nosegrind
+## Backside Noseslide
 
 A 360 backside pop shove-it with a 180 body varial going the same direction.
 
@@ -8,4 +8,4 @@ A 360 backside pop shove-it with a 180 body varial going the same direction.
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/l_pnNeysuAA/0.jpg)](https://www.youtube.com/watch?v=l_pnNeysuAA)
+[![Watch the trick](https://img.youtube.com/vi/a0Ep3Cbov-I/0.jpg)](https://www.youtube.com/watch?v=a0Ep3Cbov-I)
