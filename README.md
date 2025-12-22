@@ -1,6 +1,6 @@
 # Trick of the Day
 
-## Backside Suski
+## Backside Tailslide
 
 A 360 backside pop shove-it with a 180 body varial going the same direction.
 
@@ -8,4 +8,4 @@ A 360 backside pop shove-it with a 180 body varial going the same direction.
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/x1GI4s9VCyk/0.jpg)](https://www.youtube.com/watch?v=x1GI4s9VCyk)
+[![Watch the trick](https://img.youtube.com/vi/qULVdPMMa-8/0.jpg)](https://www.youtube.com/watch?v=qULVdPMMa-8)
