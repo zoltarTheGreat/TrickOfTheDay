@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Bertlemann Slide
+## Bluntslide
 
-Unknown
+Performed by ollieing over/onto the obstacle and fitting the edge/rail between the tail and back truck of one’s skateboard and sliding. Can be performed on flat ground (called a bluntstop)[1] or downhill, possibly with only the tip of the board sliding on the street and all four wheels lifted.
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/sAKjT3bUGcw/0.jpg)](https://www.youtube.com/watch?v=sAKjT3bUGcw)
+[![Watch the trick](https://img.youtube.com/vi/PrfS3QCDzl8/0.jpg)](https://www.youtube.com/watch?v=PrfS3QCDzl8)
