@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Boardslide
+## Casper Slide
 
-The board straddles the the obstacle perpendicularly as the skateboarder slides along the center of the board.
+A single midair trick composed of two parts. The first part is a half-kickflip that is caught upside-down with the back foot on top of the tail and the front foot cradling the downward facing forward portion of the deck. The second part is a backside shove-it spun from this brief aerial stall.
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/z4TD1qRa4-U/0.jpg)](https://www.youtube.com/watch?v=z4TD1qRa4-U)
+[![Watch the trick](https://img.youtube.com/vi/ntPDsObPWPE/0.jpg)](https://www.youtube.com/watch?v=ntPDsObPWPE)
