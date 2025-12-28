@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Casper Slide
+## Crail Slide
 
-A single midair trick composed of two parts. The first part is a half-kickflip that is caught upside-down with the back foot on top of the tail and the front foot cradling the downward facing forward portion of the deck. The second part is a backside shove-it spun from this brief aerial stall.
+This is a tailslide where the skater grabs the nose of the board with the back hand while sliding. Usually performed on a ramp. It comes from the same idea as the more popular Lien Slide, in that in both tricks the skater grabs the board to help put it in position for the tailslide. Since the invention of the Ollie, it is more common to Ollie in to a tailslide.
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/ntPDsObPWPE/0.jpg)](https://www.youtube.com/watch?v=ntPDsObPWPE)
+[![Watch the trick](https://img.youtube.com/vi/pQimzYGgiV4/0.jpg)](https://www.youtube.com/watch?v=pQimzYGgiV4)
