@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Nosegrind
+## Noseslide
 
-In a Nosegrind, the skateboard’s front truck grinds a rail or edge, while the back truck is suspended over the rail/edge. It is similar to the nose manual, except performed on a rail, coping, or ledge. Jamie Thomas is one of the few people who can balance a legitimate nosegrind down a lengthy handrail. This move originated on vert, initially in the form of Neil Blender’s New Deal (nose pivot to disaster), then by his more advanced progression of said move, the “Newer Deal”, which left out the disaster part and just pivoted all the way back in. The “nosepicker” is also a fore-runner of the nosegrind.
+A noseslide is performed by riding parallel to an obstacle (ledge, rail, etc…) The skateboarder then does an ollie and turns the board 90 degrees. They then land on the ledge with the nose of the board sliding on top of it. This can be done frontside or backside. The skateboarder can then come off the ledge either regular or fakie (backwards).
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/pQvKKW9Hntg/0.jpg)](https://www.youtube.com/watch?v=pQvKKW9Hntg)
+[![Watch the trick](https://img.youtube.com/vi/a0Ep3Cbov-I/0.jpg)](https://www.youtube.com/watch?v=a0Ep3Cbov-I)
