@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Overturn
+## Primo Grind
 
-Unknown
+Primo grind in when you grind on both wheels/bearings in rail stance.
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/gi8bUj1u5n4/0.jpg)](https://www.youtube.com/watch?v=gi8bUj1u5n4)
+[![Watch the trick](https://img.youtube.com/vi/MWyr-qVkZjA/0.jpg)](https://www.youtube.com/watch?v=MWyr-qVkZjA)
