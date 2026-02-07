@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Airwalk
+## Axle Drop-In
 
-A no-footed Backside Air where the front hand grabs the nose. Usually the front foot is kicked off the toe-side of the board, while the back foot is kicked off the heel-side, producing the impression of walking in the air, hence the name. Rodney Mullen did it on the flat ground first, while Tony Hawk was the first to do it on vert.
+An axle stall is a stall on both trucks of a skateboard. It is used commonly to regain composure before performing another trick or to “drop in” on a ramp. Essentially a stationary 50-50.
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/Z3ECiv1NtbA/0.jpg)](https://www.youtube.com/watch?v=Z3ECiv1NtbA)
+[![Watch the trick](https://img.youtube.com/vi/p7bL0bc4gVw/0.jpg)](https://www.youtube.com/watch?v=p7bL0bc4gVw)
