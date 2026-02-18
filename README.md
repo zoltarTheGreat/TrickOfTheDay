@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Benihana
+## Blunt Stall 180 Out
 
-Unknown
+Performed by ollieing over/onto the obstacle and fitting the edge/rail between the tail and back truck of one’s skateboard and sliding. Can be performed on flat ground (called a bluntstop)[1] or downhill, possibly with only the tip of the board sliding on the street and all four wheels lifted.
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/rOnaM7G6m4E/0.jpg)](https://www.youtube.com/watch?v=rOnaM7G6m4E)
+[![Watch the trick](https://img.youtube.com/vi/ttMYlbMjprs/0.jpg)](https://www.youtube.com/watch?v=ttMYlbMjprs)
