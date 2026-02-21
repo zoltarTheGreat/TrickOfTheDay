@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Blunt Stall to Fakie
+## Body Jar
 
-Performed by ollieing over/onto the obstacle and fitting the edge/rail between the tail and back truck of one’s skateboard and sliding. Can be performed on flat ground (called a bluntstop)[1] or downhill, possibly with only the tip of the board sliding on the street and all four wheels lifted.
+Unknown
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/1SHZI37GaUk/0.jpg)](https://www.youtube.com/watch?v=1SHZI37GaUk)
+[![Watch the trick](https://img.youtube.com/vi/t6KsdgOqz6s/0.jpg)](https://www.youtube.com/watch?v=t6KsdgOqz6s)
