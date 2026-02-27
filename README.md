@@ -1,6 +1,6 @@
 # Trick of the Day
 
-## Crossbone
+## Delmar Indy
 
 Unknown
 
@@ -8,4 +8,4 @@ Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/p8Ma-7i3dQQ/0.jpg)](https://www.youtube.com/watch?v=p8Ma-7i3dQQ)
+[![Watch the trick](https://img.youtube.com/vi/0AG8UHu4pwQ/0.jpg)](https://www.youtube.com/watch?v=0AG8UHu4pwQ)
