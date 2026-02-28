@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Delmar Indy
+## Double Grab
 
-Unknown
+This trick is when the board does a full impossible and continues to spin an extra rotation.It was invented by Richard Harter.
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/0AG8UHu4pwQ/0.jpg)](https://www.youtube.com/watch?v=0AG8UHu4pwQ)
+[![Watch the trick](https://img.youtube.com/vi/nwdyLUaDDSI/0.jpg)](https://www.youtube.com/watch?v=nwdyLUaDDSI)
