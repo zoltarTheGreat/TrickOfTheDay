@@ -1,6 +1,6 @@
 # Trick of the Day
 
-## Fakie Noseblunt Stall
+## Fakie Rock
 
 Any trick that goes back in switchstance which was not initiated from a “switched” stance, or when the normal back foot is the leading foot.
 
@@ -8,4 +8,4 @@ Any trick that goes back in switchstance which was not initiated from a “switc
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/VjATsMZzf_c/0.jpg)](https://www.youtube.com/watch?v=VjATsMZzf_c)
+[![Watch the trick](https://img.youtube.com/vi/_asEa88aCHA/0.jpg)](https://www.youtube.com/watch?v=_asEa88aCHA)
