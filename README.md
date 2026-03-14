@@ -1,6 +1,6 @@
 # Trick of the Day
 
-## Frontside Noseblunt Stall
+## Frontside Pivot Stall
 
 An ollie in which both the skater and the skateboard rotate 180 degrees either frontside or backside. If the skater spins some other multiple of 180 degrees (e.g. 360, 540), the trick is named accordingly.
 
@@ -8,4 +8,4 @@ An ollie in which both the skater and the skateboard rotate 180 degrees either f
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/ThKObVpTikk/0.jpg)](https://www.youtube.com/watch?v=ThKObVpTikk)
+[![Watch the trick](https://img.youtube.com/vi/eivMh6cgh-A/0.jpg)](https://www.youtube.com/watch?v=eivMh6cgh-A)
