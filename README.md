@@ -1,6 +1,6 @@
 # Trick of the Day
 
-## Frontside Sweeper
+## Frontside Tail Stall
 
 An ollie in which both the skater and the skateboard rotate 180 degrees either frontside or backside. If the skater spins some other multiple of 180 degrees (e.g. 360, 540), the trick is named accordingly.
 
@@ -8,4 +8,4 @@ An ollie in which both the skater and the skateboard rotate 180 degrees either f
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/lay19sVHvk0/0.jpg)](https://www.youtube.com/watch?v=lay19sVHvk0)
+[![Watch the trick](https://img.youtube.com/vi/6mrrwuTKWLw/0.jpg)](https://www.youtube.com/watch?v=6mrrwuTKWLw)
