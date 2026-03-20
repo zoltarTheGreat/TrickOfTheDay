@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Frontside Tail Stall
+## Grosman Grab
 
-An ollie in which both the skater and the skateboard rotate 180 degrees either frontside or backside. If the skater spins some other multiple of 180 degrees (e.g. 360, 540), the trick is named accordingly.
+In this trick the rider reaches their front hand down between their legs and grabs the heelside edge of the board. Much like a Roastbeef, but using the front hand instead.
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/6mrrwuTKWLw/0.jpg)](https://www.youtube.com/watch?v=6mrrwuTKWLw)
+[![Watch the trick](https://img.youtube.com/vi/2ANAy2AUtL0/0.jpg)](https://www.youtube.com/watch?v=2ANAy2AUtL0)
