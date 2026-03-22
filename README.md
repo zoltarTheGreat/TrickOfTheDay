@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Helipop
+## Indy
 
-Frontside or backside 360 nollie. Invented by Rodney Mullen.
+Unknown
 
 **Invented by:** Unknown
 
-**Year:** 1980
+**Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/q7N1ekVA3gg/0.jpg)](https://www.youtube.com/watch?v=q7N1ekVA3gg)
+[![Watch the trick](https://img.youtube.com/vi/MkmEwvXtL8w/0.jpg)](https://www.youtube.com/watch?v=MkmEwvXtL8w)
