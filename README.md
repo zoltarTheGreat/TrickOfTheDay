@@ -1,6 +1,6 @@
 # Trick of the Day
 
-## Indy
+## Indy Grab
 
 Unknown
 
@@ -8,4 +8,4 @@ Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/MkmEwvXtL8w/0.jpg)](https://www.youtube.com/watch?v=MkmEwvXtL8w)
+[![Watch the trick](https://img.youtube.com/vi/Wv0nBT8lh7A/0.jpg)](https://www.youtube.com/watch?v=Wv0nBT8lh7A)
