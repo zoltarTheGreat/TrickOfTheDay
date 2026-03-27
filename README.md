@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Judo Air
+## Lien Air
 
-A Backside air where the skater takes his front foot off the board and kicks it forward and pulls the board backwards while the back foot is still on the board. The name of the trick stems from the appearance that the skater is doing a martial-arts-style kick in mid air even though competitive Judo forbids the use of kicks.
+Another of the basic airs. It’s a frontside air grabbing the nose or heel edge with your front hand (leading hand). Neil Blender invented the Lien Air. Lien is the creator’s name spelled backwards.
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/t4fycax8f7A/0.jpg)](https://www.youtube.com/watch?v=t4fycax8f7A)
+[![Watch the trick](https://img.youtube.com/vi/_6zQE4Hb3bE/0.jpg)](https://www.youtube.com/watch?v=_6zQE4Hb3bE)
