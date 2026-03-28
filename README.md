@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Lien Air
+## Madonna
 
-Another of the basic airs. It’s a frontside air grabbing the nose or heel edge with your front hand (leading hand). Neil Blender invented the Lien Air. Lien is the creator’s name spelled backwards.
+A one-footed lien to tail, where the front foot is taken off and kicked out straight down (behind the board), invented by Tony Hawk.
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/_6zQE4Hb3bE/0.jpg)](https://www.youtube.com/watch?v=_6zQE4Hb3bE)
+[![Watch the trick](https://img.youtube.com/vi/HzDELy1ovs0/0.jpg)](https://www.youtube.com/watch?v=HzDELy1ovs0)
