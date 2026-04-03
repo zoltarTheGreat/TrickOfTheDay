@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Mute Air
+## Nose Grab
 
-Performed by riding up the transition, ollieing and grabbing with the front hand on the toe side of the board between the feet, turning backside, and landing. It’s the same grab as a Slob air, but turning the opposite direction. The Mute Air was invented by Chris Weddle, and was so named because he was deaf from birth and thus had severe speech difficulties.
+A noseslide is performed by riding parallel to an obstacle (ledge, rail, etc…) The skateboarder then does an ollie and turns the board 90 degrees. They then land on the ledge with the nose of the board sliding on top of it. This can be done frontside or backside. The skateboarder can then come off the ledge either regular or fakie (backwards).
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/Z183RsxpR0c/0.jpg)](https://www.youtube.com/watch?v=Z183RsxpR0c)
+[![Watch the trick](https://img.youtube.com/vi/QgfXnrxeVNU/0.jpg)](https://www.youtube.com/watch?v=QgfXnrxeVNU)
