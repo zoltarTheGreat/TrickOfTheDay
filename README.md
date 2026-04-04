@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Nose Grab
+## Nose Pick
 
-A noseslide is performed by riding parallel to an obstacle (ledge, rail, etc…) The skateboarder then does an ollie and turns the board 90 degrees. They then land on the ledge with the nose of the board sliding on top of it. This can be done frontside or backside. The skateboarder can then come off the ledge either regular or fakie (backwards).
+A stall on the front truck which is grabbed for re entry. May be done B/S or F/S.
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/QgfXnrxeVNU/0.jpg)](https://www.youtube.com/watch?v=QgfXnrxeVNU)
+[![Watch the trick](https://img.youtube.com/vi/eFOpS5QirEA/0.jpg)](https://www.youtube.com/watch?v=eFOpS5QirEA)
