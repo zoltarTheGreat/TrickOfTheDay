@@ -1,6 +1,6 @@
 # Trick of the Day
 
-## Nuclear Grab
+## Riverdance
 
 Unknown
 
@@ -8,4 +8,4 @@ Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/QgfXnrxeVNU/0.jpg)](https://www.youtube.com/watch?v=QgfXnrxeVNU)
+[![Watch the trick](https://img.youtube.com/vi/dPfLepF8SZo/0.jpg)](https://www.youtube.com/watch?v=dPfLepF8SZo)
