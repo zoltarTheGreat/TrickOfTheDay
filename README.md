@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Roastbeef Grab
+## Rock to Fakie
 
-Performed similar to a Stalefish, however the skater grabs the heel-edge of the board with his or her trailing hand in-between the legs, rather than wrapping the arm behind. Invented by Jeff Grosso, it is much simpler to execute than a Stalefish, and is sometimes referred to as the “poor-man’s stalefish.”
+Similar to the Rock to Fakie only a quick 180 is done as you come off the lip so that you don’t ride fakie. The frontside variation is much harder and is considered one of the most stylish lip tricks.
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/09WsTgTrzJs/0.jpg)](https://www.youtube.com/watch?v=09WsTgTrzJs)
+[![Watch the trick](https://img.youtube.com/vi/KTtRbd8FwfM/0.jpg)](https://www.youtube.com/watch?v=KTtRbd8FwfM)
