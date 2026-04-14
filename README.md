@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Sal Flip
+## Saran Wrap
 
-Ollie air straight up and then landing in a rock and roll to fakie. Proper execution is done fluid and fast. Sometimes referred to as a “Pop Rock.” Invented by Salman Agah.
+Taken from a freestyle trick invented by Rodney Mullen, this air is performed by grabbing backside with the front hand and then kicking or “wrapping” the front leg forward then in a circular motion around the nose of the board. Once the leg has wrapped at least 180 around the board, the back hand grabs like a frontside air while the back hand is released and the front foot is placed back on the board.
 
-**Invented by:** Invented by Salvador Lucas Barbier (Sal Barbier). in motion this trick mimics a Fingerflip and a 360 Pop Shove-It. While riding forward, the rider mildly hits the tail like a Backside Pop Shove-It. At
+**Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/LSjRJsV29YE/0.jpg)](https://www.youtube.com/watch?v=LSjRJsV29YE)
+[![Watch the trick](https://img.youtube.com/vi/L4rxYeF1ljA/0.jpg)](https://www.youtube.com/watch?v=L4rxYeF1ljA)
