@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Superman Grab
+## Tail Grab
 
-Unknown
+Similar to the noseslide only when turning 90 degrees the tail of the board is landed on the edge of the ledge/rail.
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/o2JM6UmcY00/0.jpg)](https://www.youtube.com/watch?v=o2JM6UmcY00)
+[![Watch the trick](https://img.youtube.com/vi/QgfXnrxeVNU/0.jpg)](https://www.youtube.com/watch?v=QgfXnrxeVNU)
