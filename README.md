@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Tuck Knee
+## Bean Plant
 
-An invert that is grabbed like a Japan Air and tweaked severely, sometimes with the nose of the board hitting the helmet.
+Like a boneless, but the rider grabs the Nose or grabs Lien (Heelside of the Nose) with the front hand.
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/HRgPY9_QS3Y/0.jpg)](https://www.youtube.com/watch?v=HRgPY9_QS3Y)
+[![Watch the trick](https://img.youtube.com/vi/luEO0pCOVDo/0.jpg)](https://www.youtube.com/watch?v=luEO0pCOVDo)
