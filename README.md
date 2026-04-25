@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Bean Plant
+## Egg Plant
 
-Like a boneless, but the rider grabs the Nose or grabs Lien (Heelside of the Nose) with the front hand.
+This invert differs from others in that the front hand is on the coping, while the back hand is grabbing like an Indy. Variation: 540 McEgg (invented by Mike McGill).
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/luEO0pCOVDo/0.jpg)](https://www.youtube.com/watch?v=luEO0pCOVDo)
+[![Watch the trick](https://img.youtube.com/vi/zpaTMjuxaEg/0.jpg)](https://www.youtube.com/watch?v=zpaTMjuxaEg)
