@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Ho-Ho
+## Layback Air
 
-This is where both hands are on the coping at the same time at one point during the trick, enabling the person to walk on their hands if so desired. Both hands must be on the coping because the trick is actually an invert to eggplant. The Ha-Ha is similar except that it is basically a stalled invert where the front hand briefly rests on the coping before returning to grab the board. The Ho-Ho was conceived by Neil Blender, but first done by either Jeff Kendall or Steve Schneer.
+An invert-like trick done frontside while grabbing slob and placing the back hand on the coping. Essentially an invert done frontside, with the rear hand planted on the lip. Variations: to board to frontside rock, to tail, to revert, to fakie, or to invert.
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/SBJcHEAkgp4/0.jpg)](https://www.youtube.com/watch?v=SBJcHEAkgp4)
+[![Watch the trick](https://img.youtube.com/vi/dQC8uvFRNCI/0.jpg)](https://www.youtube.com/watch?v=dQC8uvFRNCI)
