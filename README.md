@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Power Ollie
+## Sad Plant
 
-Unknown
+An invert whereby the skater’s front leg is fully extended.
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/JNmUK9fvrAs/0.jpg)](https://www.youtube.com/watch?v=JNmUK9fvrAs)
+[![Watch the trick](https://img.youtube.com/vi/NqGA2lvCSVY/0.jpg)](https://www.youtube.com/watch?v=NqGA2lvCSVY)
