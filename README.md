@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Staple Gun
+## Texas Plant
 
-A rider rides straight up and off the ramp while placing the back foot on the transition below the coping. The board is then stomped down onto the platform with the front foot and pulled back into the ramp toward the back ankle. Hopping of the back foot and back onto the board, the rider rides away fakie.
+Go up to the lip frontside and take the back foot off and plant it on the coping, while grabbing the tail and extending the front leg. Traditionally there is a slight pause before the skater jumps back while simultaneously returning the rear foot to its proper location. It was invented by Texas skate master John “Tex” Gibson.
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/1niJcx3IfnI/0.jpg)](https://www.youtube.com/watch?v=1niJcx3IfnI)
+[![Watch the trick](https://img.youtube.com/vi/vvRjNkgaalY/0.jpg)](https://www.youtube.com/watch?v=vvRjNkgaalY)
