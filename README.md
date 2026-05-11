@@ -1,6 +1,6 @@
 # Trick of the Day
 
-## Acid Drop
+## Alley Oop
 
 Unknown
 
@@ -8,4 +8,4 @@ Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/c3lEnPpjMSQ/0.jpg)](https://www.youtube.com/watch?v=c3lEnPpjMSQ)
+[![Watch the trick](https://img.youtube.com/vi/uzh35x6scCc/0.jpg)](https://www.youtube.com/watch?v=uzh35x6scCc)
