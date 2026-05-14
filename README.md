@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Backside Wallride
+## Body Varial
 
-A 360 backside pop shove-it with a 180 body varial going the same direction.
+A body varial is a fundamental skateboarding trick in which the skater jumps from their current position on the board and lands facing the opposite direction. Execution To perform a body varial:
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/KPfFh4ZueHM/0.jpg)](https://www.youtube.com/watch?v=KPfFh4ZueHM)
+[![Watch the trick](https://img.youtube.com/vi/AfzrjYFhkYU/0.jpg)](https://www.youtube.com/watch?v=AfzrjYFhkYU)
