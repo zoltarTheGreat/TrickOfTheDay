@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Body Varial
+## Boneless
 
-A body varial is a fundamental skateboarding trick in which the skater jumps from their current position on the board and lands facing the opposite direction. Execution To perform a body varial:
+When you do a boneless, which is a freestyle trickwhere you grab the board with your front hand plant your foot on the ground and use your back foot hand and planted foot do get the board in the air. While in the air you do a fingerflip. You can do several fingerflips with this tricks.
 
 **Invented by:** Unknown
 
-**Year:** Unknown
+**Year:** 1979
 
-[![Watch the trick](https://img.youtube.com/vi/AfzrjYFhkYU/0.jpg)](https://www.youtube.com/watch?v=AfzrjYFhkYU)
+[![Watch the trick](https://img.youtube.com/vi/-fvldaA-oGI/0.jpg)](https://www.youtube.com/watch?v=-fvldaA-oGI)
