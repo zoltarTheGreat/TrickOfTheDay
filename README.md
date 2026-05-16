@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Boneless
+## Caveman
 
-When you do a boneless, which is a freestyle trickwhere you grab the board with your front hand plant your foot on the ground and use your back foot hand and planted foot do get the board in the air. While in the air you do a fingerflip. You can do several fingerflips with this tricks.
+A caveman grind is when a skater, instead of ollieing up onto a rail, starts with the board in his hand, places it onto the rail in the desired grind position and at the same time jumps onto the board, starting the grind.
 
 **Invented by:** Unknown
 
-**Year:** 1979
+**Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/-fvldaA-oGI/0.jpg)](https://www.youtube.com/watch?v=-fvldaA-oGI)
+[![Watch the trick](https://img.youtube.com/vi/cRV7_i6sfNA/0.jpg)](https://www.youtube.com/watch?v=cRV7_i6sfNA)
