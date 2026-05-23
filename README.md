@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Frontside Wallride
+## Hang Ten
 
-An ollie in which both the skater and the skateboard rotate 180 degrees either frontside or backside. If the skater spins some other multiple of 180 degrees (e.g. 360, 540), the trick is named accordingly.
+When you go in a HangTen then you pop down making it do a pressure nollie hardflip through your legs.
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/vAZUHBLj56k/0.jpg)](https://www.youtube.com/watch?v=vAZUHBLj56k)
+[![Watch the trick](https://img.youtube.com/vi/wPp8WpbYudI/0.jpg)](https://www.youtube.com/watch?v=wPp8WpbYudI)
