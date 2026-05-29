@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Strawberry Milkshake
+## Street Plant
 
-A Strawberry Milkshake is basically a primo no-comply impossible. It was invented by Steve Bentley. The skater uses their back foot to put the board in Primo position while stepping off with their front foot, then the skater hops up to wrap the board around their back foot. They then take their front foot back to the board then slam down and ride away.
+An Old School Handplant trick in which one holds the board in one hand, gets a running start, does a One Handed Handstand, puts the board under the feet, then comes back down. It is used as a fancy way to get onto one’s board. This is like an Invert on Vert, but done on flatground. This trick was one of the first “Street” tricks.
 
-**Invented by:** invented by Steve Bentley. The skater uses their back foot to put the board in Primo position while stepping off with their front foot, then the skater hops up to wrap the board around their back foot
+**Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/1kUESwSIrC8/0.jpg)](https://www.youtube.com/watch?v=1kUESwSIrC8)
+[![Watch the trick](https://img.youtube.com/vi/gssKK00dOjs/0.jpg)](https://www.youtube.com/watch?v=gssKK00dOjs)
