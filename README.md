@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Fakie Ollie
+## Frontside 180
 
-Any trick that goes back in switchstance which was not initiated from a “switched” stance, or when the normal back foot is the leading foot.
+An ollie in which both the skater and the skateboard rotate 180 degrees either frontside or backside. If the skater spins some other multiple of 180 degrees (e.g. 360, 540), the trick is named accordingly.
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/7OBwyC9TcW8/0.jpg)](https://www.youtube.com/watch?v=7OBwyC9TcW8)
+[![Watch the trick](https://img.youtube.com/vi/AxhFm3ctDkE/0.jpg)](https://www.youtube.com/watch?v=AxhFm3ctDkE)
