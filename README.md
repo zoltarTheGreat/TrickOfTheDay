@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## 360 Flip
+## 360 Hardflip
 
-The 360 flip, sometimes called 3 flips, or tre flips, is a combination between a backside 360 pop shove it, with a kickflip thrown in there.
+A 360 frontside pop shove-it and a kickflip all in one motion.
 
-**Invented by:** Invented by Rodney Mullen during his great age of skating. A 360 Flip is a skateboarding trick in which the skateboarder kicks the board to initiate a kickflip and spins the board backside in a 360 sh
+**Invented by:** Unknown
 
-**Year:** 1983
+**Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/Zl13ASE_1Qg/0.jpg)](https://www.youtube.com/watch?v=Zl13ASE_1Qg)
+[![Watch the trick](https://img.youtube.com/vi/FNqETHIOXOU/0.jpg)](https://www.youtube.com/watch?v=FNqETHIOXOU)
