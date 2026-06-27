@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## 360 Hardflip
+## 360 Ollie Heelflip
 
-A 360 frontside pop shove-it and a kickflip all in one motion.
+An air where the rider and board spin one full rotation. Can be performed almost anywhere whether it be on vert or street. On vert, this is most commonly performed from fakie so that the rider completes the 360 facing forward. Jeff Phillips was one of the first skaters to perform this while landing fakie (usually doing a lien grab).
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/FNqETHIOXOU/0.jpg)](https://www.youtube.com/watch?v=FNqETHIOXOU)
+[![Watch the trick](https://img.youtube.com/vi/Zl13ASE_1Qg/0.jpg)](https://www.youtube.com/watch?v=Zl13ASE_1Qg)
