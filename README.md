@@ -1,6 +1,6 @@
 # Trick of the Day
 
-## 360 Pop Shove-it
+## 360 Shuvit
 
 An air where the rider and board spin one full rotation. Can be performed almost anywhere whether it be on vert or street. On vert, this is most commonly performed from fakie so that the rider completes the 360 facing forward. Jeff Phillips was one of the first skaters to perform this while landing fakie (usually doing a lien grab).
 
