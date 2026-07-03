@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## 720 Flip
+## Alpha Flip
 
-When the board do a 720 degress and a kick flip all in one motion.
+A bigspin hospital Flip.
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/UyLUInK4BwM/0.jpg)](https://www.youtube.com/watch?v=UyLUInK4BwM)
+[![Watch the trick](https://img.youtube.com/vi/4y_3scwzNNs/0.jpg)](https://www.youtube.com/watch?v=4y_3scwzNNs)
