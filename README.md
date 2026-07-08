@@ -1,6 +1,6 @@
 # Trick of the Day
 
-## Backside Half Cab Heelflip
+## Backside Half Cab Kickflip
 
 A 360 backside pop shove-it with a 180 body varial going the same direction.
 
@@ -8,4 +8,4 @@ A 360 backside pop shove-it with a 180 body varial going the same direction.
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/gp1IyovpTQo/0.jpg)](https://www.youtube.com/watch?v=gp1IyovpTQo)
+[![Watch the trick](https://img.youtube.com/vi/St37IZAoC0s/0.jpg)](https://www.youtube.com/watch?v=St37IZAoC0s)
