@@ -1,6 +1,6 @@
 # Trick of the Day
 
-## Backside Heelflip
+## Backside Kickflip
 
 A 360 backside pop shove-it with a 180 body varial going the same direction.
 
@@ -8,4 +8,4 @@ A 360 backside pop shove-it with a 180 body varial going the same direction.
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/v4VncuPiai0/0.jpg)](https://www.youtube.com/watch?v=v4VncuPiai0)
+[![Watch the trick](https://img.youtube.com/vi/FIOAl10riFU/0.jpg)](https://www.youtube.com/watch?v=FIOAl10riFU)
