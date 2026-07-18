@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Bullflip
+## Caballerial Flip
 
-A BS 720 Gazelle NerdFlip – the main way people do this trick is Nollie. Invented by Robby Williams.
+A combination of a Caballerial (a fakie stance frontside or backside 360) and a kickflip.
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/N1455xs--ho/0.jpg)](https://www.youtube.com/watch?v=N1455xs--ho)
+[![Watch the trick](https://img.youtube.com/vi/Wk-ATWJ9eso/0.jpg)](https://www.youtube.com/watch?v=Wk-ATWJ9eso)
