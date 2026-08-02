@@ -1,6 +1,6 @@
 # Trick of the Day
 
-## Fakie Frontside Pop Shove-it
+## Fakie Hardflip
 
 Any trick that goes back in switchstance which was not initiated from a “switched” stance, or when the normal back foot is the leading foot.
 
@@ -8,4 +8,4 @@ Any trick that goes back in switchstance which was not initiated from a “switc
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/ePsOEjCXvGk/0.jpg)](https://www.youtube.com/watch?v=ePsOEjCXvGk)
+[![Watch the trick](https://img.youtube.com/vi/GagRpiLINag/0.jpg)](https://www.youtube.com/watch?v=GagRpiLINag)
