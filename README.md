@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Fakie Varial Kickflip
+## Feather Flip
 
-Any trick that goes back in switchstance which was not initiated from a “switched” stance, or when the normal back foot is the leading foot.
+A Half impossible and you kick the truck back down
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/pKBcWR-5Ilw/0.jpg)](https://www.youtube.com/watch?v=pKBcWR-5Ilw)
+[![Watch the trick](https://img.youtube.com/vi/WfcgGQDjMQg/0.jpg)](https://www.youtube.com/watch?v=WfcgGQDjMQg)
