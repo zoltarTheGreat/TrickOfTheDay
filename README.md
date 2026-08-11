@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Forward Flip
+## Front Foot Impossible
 
-Usually performed by ollying and sliding the front foot directly off the nose of the board instead of off one of the sides causing it to flip vertically between the riders legs. The rotations of this trick could be described as an inverted vertical varial kickflip or an ollie late nollie hardflip.
+An ollie in which both the skater and the skateboard rotate 180 degrees either frontside or backside. If the skater spins some other multiple of 180 degrees (e.g. 360, 540), the trick is named accordingly.
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/asMeKRwT-MY/0.jpg)](https://www.youtube.com/watch?v=asMeKRwT-MY)
+[![Watch the trick](https://img.youtube.com/vi/sOUNsvYfkEY/0.jpg)](https://www.youtube.com/watch?v=sOUNsvYfkEY)
