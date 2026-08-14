@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Frontside Bigspin
+## Frontside Flip
 
-The same thing as a Bigspin but the rider pops a frontside 360 shove-it and spins 180 degrees frontside.
+An ollie in which both the skater and the skateboard rotate 180 degrees either frontside or backside. If the skater spins some other multiple of 180 degrees (e.g. 360, 540), the trick is named accordingly.
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/Sc_zV525XE8/0.jpg)](https://www.youtube.com/watch?v=Sc_zV525XE8)
+[![Watch the trick](https://img.youtube.com/vi/PW2I9F29Sf4/0.jpg)](https://www.youtube.com/watch?v=PW2I9F29Sf4)
