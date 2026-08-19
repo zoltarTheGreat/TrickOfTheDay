@@ -1,6 +1,6 @@
 # Trick of the Day
 
-## Frontside Kickflip
+## Frontside Pop Shove-it
 
 An ollie in which both the skater and the skateboard rotate 180 degrees either frontside or backside. If the skater spins some other multiple of 180 degrees (e.g. 360, 540), the trick is named accordingly.
 
@@ -8,4 +8,4 @@ An ollie in which both the skater and the skateboard rotate 180 degrees either f
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/PW2I9F29Sf4/0.jpg)](https://www.youtube.com/watch?v=PW2I9F29Sf4)
+[![Watch the trick](https://img.youtube.com/vi/Qy9fdczTPFM/0.jpg)](https://www.youtube.com/watch?v=Qy9fdczTPFM)
