@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Frontside Pop Shove-it
+## Gazelle Flip
 
-An ollie in which both the skater and the skateboard rotate 180 degrees either frontside or backside. If the skater spins some other multiple of 180 degrees (e.g. 360, 540), the trick is named accordingly.
+A 540 flip with a body rotation of 360 degrees in the same direction.
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/Qy9fdczTPFM/0.jpg)](https://www.youtube.com/watch?v=Qy9fdczTPFM)
+[![Watch the trick](https://img.youtube.com/vi/KMZghU8iEb4/0.jpg)](https://www.youtube.com/watch?v=KMZghU8iEb4)
