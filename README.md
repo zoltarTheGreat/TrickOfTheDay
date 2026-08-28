@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Hardflip
+## Haslam Flip
 
-A frontside pop shove-it with a kickflip. This trick is awkward to execute, and the board sometimes appears to move vertically through the legs.
+A Half Varial Kick to a half late heelflip in one motion.
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/9-VsI1nq3Ms/0.jpg)](https://www.youtube.com/watch?v=9-VsI1nq3Ms)
+[![Watch the trick](https://img.youtube.com/vi/WPCBnCOQvRg/0.jpg)](https://www.youtube.com/watch?v=WPCBnCOQvRg)
