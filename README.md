@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Jesus Flip
+## Kickback Flip
 
-Six kickflips ( or a sextuplet flip) invented by Aaron Brown.
+The board does a half pressure kickflip rotation, then it is brought back up and thrown in the heelflip direction, making it a half pressure kickflip to a late one and a half helflip.
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/wYuT6zf08fY/0.jpg)](https://www.youtube.com/watch?v=wYuT6zf08fY)
+[![Watch the trick](https://img.youtube.com/vi/rYeQQ1HtIrg/0.jpg)](https://www.youtube.com/watch?v=rYeQQ1HtIrg)
