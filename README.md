@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## No Comply
+## Nollie 360 Flip
 
-In this trick the front foot slides off the side of the board, with the body weight on the back foot over the tail, the board ‘snaps’ up and can be guided with the back leg/knee. To ride away the rider jumps with his/her front foot back on. The No Comply was commonly used by street skaters in the mid to late 80’s, most commonly being done off parking blocks by bumping the tail off them. This trick has many variations, including 180, 360, Varials, Flips, Fingerflips, Impossibles, etc. Ray Barbee is noted as a master of No Comply variations to many who have watched the earlier Powell videos.
+An ollie off the nose of the board. Any trick can be performed nollie rather than an ollie (although they would be renamed accordingly, e.g. a kickflip from a nollie is called a “nollie kickflip”). A common misconception among younger riders is that nollie is similar to fakie. When performing a nollie trick, frontside is still frontside, as is backside, as if you are still riding in your regular stance. Fakie is meant to imply rolling backwards as if still riding regular. An example would be the a nollie frontside pop shove-it which is performed as if doing a switch backside shove-it, only riding backwards.
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/6-DqQQsQToE/0.jpg)](https://www.youtube.com/watch?v=6-DqQQsQToE)
+[![Watch the trick](https://img.youtube.com/vi/5spf3s_5KhA/0.jpg)](https://www.youtube.com/watch?v=5spf3s_5KhA)
