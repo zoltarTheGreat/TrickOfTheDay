@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Shuvit
+## Sigma Flip
 
-Is a shuvit with a lateflip motion.
+A Half Nightmare flip to a anti Casper flip in one motion.
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/D9hiD1jV9ZI/0.jpg)](https://www.youtube.com/watch?v=D9hiD1jV9ZI)
+[![Watch the trick](https://img.youtube.com/vi/2ttQl8wy0_M/0.jpg)](https://www.youtube.com/watch?v=2ttQl8wy0_M)
