@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Toeflip
+## Triple Kickflip
 
-A Pressure Varial Kick.
+When you do kickflip and it flips three times.
 
 **Invented by:** Unknown
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/fq_rMea3B9s/0.jpg)](https://www.youtube.com/watch?v=fq_rMea3B9s)
+[![Watch the trick](https://img.youtube.com/vi/Dprw0uksKE4/0.jpg)](https://www.youtube.com/watch?v=Dprw0uksKE4)
