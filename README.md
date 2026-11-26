@@ -1,11 +1,11 @@
 # Trick of the Day
 
-## Crooked Grind
+## Darkslide
 
-Also known as Crooks, Pointer Grind, or the K-grind after the man to whom the trick is most commonly accredited, Eric Koston or Karl Watson. It is like a nosegrind, but the tail of the board is angled away from the rail/ledge on which the trick is performed, causing the edge of the deck’s nose to also rub. Invented by Dan Peterka.
+The Dark slide is a seemingly complicated looking trick in which the rider approaches a ledge or rail and does a flip trick onto the obstacle so that the rider lands on the board upside down with their feet on the nose and the tail and slides across the obstacle. Generally a half-kickflip or half-heelflip is the flip trick used to get into a darkslide.
 
-**Invented by:** Invented by Dan Peterka. thumb|300px|right Execution [ ] 1-Approach the rail or what ever straight on this helps to get on it 3-Ollie on to it and put pressure on to the nose while turning the tail a 
+**Invented by:** invented by Rodney Mullen where you flip the board upside-down and grind the board on its grip tape . The first person to do a darkslide was Mark Gonzales, he did a caveman to darkslide in Blind Video
 
 **Year:** Unknown
 
-[![Watch the trick](https://img.youtube.com/vi/IyFLIh-zkiA/0.jpg)](https://www.youtube.com/watch?v=IyFLIh-zkiA)
+[![Watch the trick](https://img.youtube.com/vi/KsStsGjqV2Y/0.jpg)](https://www.youtube.com/watch?v=KsStsGjqV2Y)
